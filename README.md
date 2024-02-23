@@ -1,23 +1,26 @@
-fgyxgfuvivibj
-fgcucuchcjk
-rtdyufugih
-ugjvjvkbln
-hfhcjvihojp
-gugjvibono
-cgoj
-  
-  n ...
-  
-  
+This application is only made for hacking.
+Any type of technical glitch in Group of Intelligence 3.2 ( This website can recover it)
 
-<!---
-HackedS20/HackedS20 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-Devil 😈 no1 
-Ighjkl
-ghilm
-Kit 
+I don't give my phone number because off this website is not safe and secure 
 
-java.in 
-ft46 app it is 
+Come in this website by your own risk
+
+After intering in this this web delete all the information in this group 
+
+a
+All clear your history , otherwise this web can harm your device 
+.......................
+
+
+{
+Hacked S20 ²∅ : fahwj}
+
+.............................
+
+<head>
+    <meta charset="UTF-8">
+    <title>Hacked</title>
+    <meta name="viewport" 
+      content="width=device-width, initial-scale=1">
+    <meta name="author" content="HackerS20">
+    <meta name="ent="
